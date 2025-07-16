@@ -1,6 +1,6 @@
 <h2>漫猫动漫官网，动漫BT下载与漫画资源平台|网页版入口</h2>
 <p>漫猫动漫是一个综合性的动漫资源平台，主要提供漫画、动画、游戏、动漫音乐以及相关片源的资源分享与下载服务。该网站由漫猫字幕组官方运营，致力于为用户提供高质量的动漫资源，同时支持用户自由发布和分享资源，形成了一个开放的动漫社区。平台内容丰富多样，包括热门新番、经典动画、日剧字幕、原创漫画等，满足不同用户的需求。此外，漫猫动漫还提供便捷的搜索功能，用户可以快速找到自己喜欢的动漫资源，同时支持离线下载、高清画质观看以及个性化推荐等功能，极大提升了用户体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5713.html" target="_blank"><strong>漫猫动漫官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://manmaodongman.rymdh.com/" target="_blank"><strong>漫猫动漫官网最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
